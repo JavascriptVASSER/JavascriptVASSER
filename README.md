@@ -4,7 +4,7 @@ ___________________
 
 - ✌️How to reach me:
 - 📬Gmail: Cyber09.2009@gmail.com
-- 💬Discord: !vasser!#5464
+- 💬Discord: _vasser_ [Quantum Decrypter]
 
 <!---
 JavascriptVASSER/JavascriptVASSER is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
